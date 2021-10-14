@@ -11,3 +11,8 @@ consise questions for resolution.
 New Strategies Committed to Trying During Mod 0
 1 - Write down questions to Google.
 2 - Stick to a consistent schedule.
+
+Shoutout!
+1 - SHOUTOUT to Sam M. for being true to himself and using the
+    yellow dot on his status! Vulnerability is strength! Showing
+    up true to where you are helps me do the same! Thank you! 
