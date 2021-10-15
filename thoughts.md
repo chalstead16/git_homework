@@ -15,4 +15,9 @@ New Strategies Committed to Trying During Mod 0
 Shoutout!
 1 - SHOUTOUT to Sam M. for being true to himself and using the
     yellow dot on his status! Vulnerability is strength! Showing
-    up true to where you are helps me do the same! Thank you! 
+    up true to where you are helps me do the same! Thank you!
+
+
+Adding to show on github
+
+this is a test
